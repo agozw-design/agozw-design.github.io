@@ -1,1 +1,1 @@
-# agoz.github.io
+# agozw-design.github.io
